@@ -1,3 +1,12 @@
+
+### AK Lectures
+
+[Biochemistry](https://aklectures.com/subject/biochemistry/introduction-to-proteins)
+
 [Properties of Water and Hydrophobic Effect](https://www.youtube.com/watch?v=3vy__KvTi6I&list=PL9jo2wQj1WCNYMXKLWy22FWxH_Yvxev_y)
 
 [Primary Structure of Proteins](https://www.youtube.com/watch?v=KW8Uo8jsiGY)
+
+[Secondary Structure of Proteins](https://www.youtube.com/watch?v=4YbwjjZWGPA)
+
+[Tertiary Structure of Proteins](https://www.youtube.com/watch?v=p5Oi_yFfAhg)
