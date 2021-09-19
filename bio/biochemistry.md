@@ -16,3 +16,7 @@
 ### MIT Open CourseWare
 
 [Introduction to Biology](https://ocw.mit.edu/courses/biology/7-016-introductory-biology-fall-2018/)
+
+### Amino Acids
+
+* [Glycine](https://www.google.com/search?q=glycine&tbm=isch&sxsrf=AOaemvKQHNvJc64iKOTewqvIJLq8_Fl9YA%3A1632078677879&source=hp&biw=1271&bih=653&ei=VYtHYYLkMvnB0PEPk-2IuAw&oq=glycine&gs_lcp=CgNpbWcQAzIICAAQgAQQsQMyCAgAEIAEELEDMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6BwgjEO8DECc6BAgAEAM6CwgAEIAEELEDEIMBOggIABCxAxCDAVC7DVilGWCrG2gAcAB4AIABbYgBpwSSAQM2LjGYAQCgAQGqAQtnd3Mtd2l6LWltZw&sclient=img&ved=0ahUKEwjC4tnu3ovzAhX5IDQIHZM2AscQ4dUDCAc&uact=5)
