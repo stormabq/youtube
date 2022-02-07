@@ -1,2 +1,2 @@
 
-[For now everything is in](./africa/madagascar.md)
+[For now everything is in madagascar](./africa/madagascar.md)
