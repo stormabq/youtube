@@ -5,6 +5,16 @@
 
 [Cobra Gypsies - full documentary](https://www.youtube.com/watch?v=aNUYGRn3W9Q)
 
+### The Secrets of Nature
+
+[Bohemia - A Year in the Wetlands - The Secrets of Nature](https://www.youtube.com/watch?v=Gwk71FP19K4)
+
+### Free High Quality Documentaries
+
+[The Baltic coast](https://www.youtube.com/watch?v=1pZziPy1jLM)
+
+[A wintery journey to the Arctic Circle - By Nordland railway across Norway](https://www.youtube.com/watch?v=eMpA1jPdr7M)
+
 ### SLICE
 
 [Himalaya, Land of Women | SLICE | Full Documentary](https://www.youtube.com/watch?v=NPic_MsN-y8)
