@@ -7,9 +7,7 @@
 
 ### Gaston Marotta
 
-[Viajar por el NORTE DE ESPAÑA es OTRO NIVEL](https://www.youtube.com/watch?v=kR3DkeZjugI)
-
-* lois, leon
+[Viajar por el NORTE DE ESPAÑA es OTRO NIVEL](https://www.youtube.com/watch?v=kR3DkeZjugI) -- lois, leon
 
 * [samantha de noche](https://www.youtube.com/channel/UCVWiotiD3F5esb-AYr874iQ)
 
