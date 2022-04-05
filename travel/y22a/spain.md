@@ -3,6 +3,7 @@
 
 * [asturias](https://en.wikipedia.org/wiki/Asturias)
 * [autonomous communities of spain](https://en.wikipedia.org/wiki/Autonomous_communities_of_Spain)
+* [extremadura](https://www.youtube.com/watch?v=Jp5CV-vuQuI)
 
 ### Gaston Marotta
 
