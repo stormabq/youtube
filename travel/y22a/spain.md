@@ -13,7 +13,10 @@
 
 * [provincia de soria](https://www.google.com/search?q=provincia+de+soria&oq=provincia+de+soria&aqs=chrome..69i57j46i512j0i512j0i22i30l7.4283j0j7&sourceid=chrome&ie=UTF-8)
 
-[Viajar por el NORTE DE ESPAÑA es OTRO NIVEL](https://www.youtube.com/watch?v=kR3DkeZjugI) -- lois, leon, [reino de leon](https://es.wikipedia.org/wiki/Reino_de_Le%C3%B3n)
+[Viajar por el NORTE DE ESPAÑA es OTRO NIVEL](https://www.youtube.com/watch?v=kR3DkeZjugI)
+
+  * [lois de leon](https://www.diariodevalderrueda.es/texto-diario/mostrar/2113016/lois-leon-entre-cinco-destinos-perfectos-perderse-espana) 
+  * [reino de leon](https://es.wikipedia.org/wiki/Reino_de_Le%C3%B3n)
 
 ### Otro
 
