@@ -15,7 +15,7 @@
 
 [viajar por esta provincia del sur de espana es especial](https://www.youtube.com/watch?v=EZgEpA2MOFA)
 
-  * [jaen](https://en.wikipedia.org/wiki/Ja%C3%A9n,_Spain)
+  * [Jaén is the urban capital city of the province of Jaén, in the autonomous community of Andalusia](https://en.wikipedia.org/wiki/Ja%C3%A9n,_Spain)
 
 [pocas personas visitan esta provincia espanola, averigua por que](https://www.youtube.com/watch?v=eX3h3C3FxR8)
 
