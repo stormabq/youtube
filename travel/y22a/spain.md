@@ -13,7 +13,7 @@
   * [lois de leon](https://www.diariodevalderrueda.es/texto-diario/mostrar/2113016/lois-leon-entre-cinco-destinos-perfectos-perderse-espana)
   * [reino de leon](https://es.wikipedia.org/wiki/Reino_de_Le%C3%B3n)
 
-[Viajar por esta provincia del SUR DE ESPAÑA es ESPECIAL](https://www.youtube.com/watch?v=EZgEpA2MOFA)
+[viajar por esta provincia del sur de espana es especial](https://www.youtube.com/watch?v=EZgEpA2MOFA)
 
 [pocas personas visitan esta provincia espanola, averigua por que](https://www.youtube.com/watch?v=eX3h3C3FxR8)
 
