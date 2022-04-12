@@ -27,6 +27,19 @@
 
 * [Nicolás de Ovando - Historia de Extremadura](https://www.youtube.com/watch?v=SxwnG7OTfLA)
 
+### Iberia James Michener Places
+
+* badajoz
+* toledo
+* cordoba
+* las marismas
+* sevilla
+* madrid
+* salamanca
+* pamplona
+* barcelona
+* teruel
+
 ### References
 
 * [autonomous communities of spain](https://en.wikipedia.org/wiki/Autonomous_communities_of_Spain)
