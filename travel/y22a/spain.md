@@ -43,3 +43,7 @@
 ### References
 
 * [autonomous communities of spain](https://en.wikipedia.org/wiki/Autonomous_communities_of_Spain)
+
+### Provincias
+
+* [Provincia de Soria](https://es.wikipedia.org/wiki/Provincia_de_Soria)
