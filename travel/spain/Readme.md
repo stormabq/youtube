@@ -5,18 +5,12 @@
 * [autonomous communities of spain](https://en.wikipedia.org/wiki/Autonomous_communities_of_Spain)
 * [extremadura](https://www.youtube.com/watch?v=Jp5CV-vuQuI)
 
-### Gaston Marotta
-
-[castilla - la mancha, ciudad real](https://www.youtube.com/watch?v=Wq-4EkH7gro)
-
-[viajar por el norte de espana es otro nivel](https://www.youtube.com/watch?v=kR3DkeZjugI)
-
-  * [lois de leon](https://www.diariodevalderrueda.es/texto-diario/mostrar/2113016/lois-leon-entre-cinco-destinos-perfectos-perderse-espana)
-  * [reino de leon](https://es.wikipedia.org/wiki/Reino_de_Le%C3%B3n)
+* [lois de leon](https://www.diariodevalderrueda.es/texto-diario/mostrar/2113016/lois-leon-entre-cinco-destinos-perfectos-perderse-espana)
+* [reino de leon](https://es.wikipedia.org/wiki/Reino_de_Le%C3%B3n)
 
 [viajar por esta provincia del sur de espana es especial](https://www.youtube.com/watch?v=EZgEpA2MOFA)
 
-  * [Jaén is the urban capital city of the province of Jaén, in the autonomous community of Andalusia](https://en.wikipedia.org/wiki/Ja%C3%A9n,_Spain)
+* [Jaén is the urban capital city of the province of Jaén, in the autonomous community of Andalusia](https://en.wikipedia.org/wiki/Ja%C3%A9n,_Spain)
 
 [pocas personas visitan esta provincia espanola, averigua por que](https://www.youtube.com/watch?v=eX3h3C3FxR8)
 
