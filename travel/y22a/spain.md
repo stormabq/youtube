@@ -7,6 +7,7 @@
 
 ### Gaston Marotta
 
+[castilla - la mancha, ciudad real](https://www.youtube.com/watch?v=Wq-4EkH7gro)
 
 [viajar por el norte de espana es otro nivel](https://www.youtube.com/watch?v=kR3DkeZjugI)
 
@@ -40,9 +41,10 @@
 * barcelona
 * teruel
 
-### References
+### Autonomous communities of Spain
 
 * [autonomous communities of spain](https://en.wikipedia.org/wiki/Autonomous_communities_of_Spain)
+* [castilla la mancha](https://en.wikipedia.org/wiki/Castilla%E2%80%93La_Mancha)
 
 ### Provincias
 
