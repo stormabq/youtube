@@ -1,4 +1,6 @@
 
+There are few women among the upper echelons of photographers. [Ami Vitale is one of them.](https://www.youtube.com/watch?v=ZAdVrdZIfFI) A frequent visitor to the world's conflict zones, Ami looks for more than just beautiful motifs. She seeks out the story behind the picture. In Madagascar, she she wants to explore what it means to be Malagasy.
+
 [The fascinating island state of Madagascar](https://www.youtube.com/watch?v=ZAdVrdZIfFI)
 
 [Madagascar Street Food!!! Super RARE Malagasy Village Food!](https://www.youtube.com/watch?v=EwBA1fOQ96c)
