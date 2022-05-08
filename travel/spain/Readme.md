@@ -12,8 +12,6 @@
 
 * [Jaén is the urban capital city of the province of Jaén, in the autonomous community of Andalusia](https://en.wikipedia.org/wiki/Ja%C3%A9n,_Spain)
 
-[pocas personas visitan esta provincia espanola, averigua por que](https://www.youtube.com/watch?v=eX3h3C3FxR8)
-
 * [provincia de soria](https://www.google.com/search?q=provincia+de+soria&oq=provincia+de+soria&aqs=chrome..69i57j46i512j0i512j0i22i30l7.4283j0j7&sourceid=chrome&ie=UTF-8)
 
 ### Otro
