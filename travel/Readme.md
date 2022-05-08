@@ -1,2 +1,2 @@
 
-For now most of the concentration on travel is in Spain.
+For now most of the concentration on travel is in [Spain](./spain).
