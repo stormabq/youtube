@@ -1,12 +1,11 @@
 
-### Places in Spain in these videos
+### places in spain
 
 * [asturias](https://en.wikipedia.org/wiki/Asturias)
-* [autonomous communities of spain](https://en.wikipedia.org/wiki/Autonomous_communities_of_Spain)
 * [extremadura](https://www.youtube.com/watch?v=Jp5CV-vuQuI)
 * [lois de leon](https://www.diariodevalderrueda.es/texto-diario/mostrar/2113016/lois-leon-entre-cinco-destinos-perfectos-perderse-espana)
 * [reino de leon](https://es.wikipedia.org/wiki/Reino_de_Le%C3%B3n)
-* [Jaén is the urban capital city of the province of Jaén, in the autonomous community of Andalusia](https://en.wikipedia.org/wiki/Ja%C3%A9n,_Spain)
+* [jaén is the urban capital city of the province of jaén, in the autonomous community of Andalusia](https://en.wikipedia.org/wiki/Ja%C3%A9n,_Spain)
 * [provincia de soria](https://www.google.com/search?q=provincia+de+soria&oq=provincia+de+soria&aqs=chrome..69i57j46i512j0i512j0i22i30l7.4283j0j7&sourceid=chrome&ie=UTF-8)
 
 ### Otro
