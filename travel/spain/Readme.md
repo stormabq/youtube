@@ -11,7 +11,7 @@
 ### Otro
 
 * [samantha de noche](https://www.youtube.com/channel/UCVWiotiD3F5esb-AYr874iQ)
-* [Nicolás de Ovando - Historia de Extremadura](https://www.youtube.com/watch?v=SxwnG7OTfLA)
+* [nicolás de ovando - historia de extremadura](https://www.youtube.com/watch?v=SxwnG7OTfLA)
 
 ### Autonomous communities of Spain
 
@@ -20,8 +20,8 @@
 
 ### Provincias
 
-* [Provincia de Soria](https://es.wikipedia.org/wiki/Provincia_de_Soria)
-* [Spanish Regions](https://www.youtube.com/watch?v=Md5-ANncZpM)
+* [provincia de soria](https://es.wikipedia.org/wiki/Provincia_de_Soria)
+* [spanish regions](https://www.youtube.com/watch?v=Md5-ANncZpM)
 
 ### Iberia James Michener Places
 
