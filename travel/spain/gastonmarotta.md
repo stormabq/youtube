@@ -1,10 +1,6 @@
 
 ### Gaston Marotta
 
-[Top Youtube Page](https://www.youtube.com/c/GastonMarotta)
-
-[List of Videos](https://www.youtube.com/c/GastonMarotta/videos)
-
 [castilla - la mancha, ciudad real](https://www.youtube.com/watch?v=Wq-4EkH7gro)
 
 [asturias - viajar por el norte de espana es otro nivel](https://www.youtube.com/watch?v=kR3DkeZjugI)
@@ -12,3 +8,9 @@
 [jaen - viajar por esta provincia del sur de espana es especial](https://www.youtube.com/watch?v=EZgEpA2MOFA)
 
 [soria - pocas personas visitan esta provincia espanola, averigua por que](https://www.youtube.com/watch?v=eX3h3C3FxR8)
+
+### References
+
+[Gaston home youtube page](https://www.youtube.com/c/GastonMarotta)
+
+[Gaston list of videos](https://www.youtube.com/c/GastonMarotta/videos)
