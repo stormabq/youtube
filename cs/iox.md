@@ -1,4 +1,10 @@
 
+[The columnar roadmap: Apache Parquet and Apache Arrow](https://www.youtube.com/watch?v=dPb2ZXnt2_U)
+
+[parquet files](https://www.youtube.com/results?search_query=parquet+files+tutorial)
+
+### IOX Tech Talks
+
 [The Design of InfluxDB IOx: In-Memory Columnar Database Written in Rust with Apache Arrow (Paul Dix)](https://www.youtube.com/watch?v=_zbwz-4RDXg)
 
 [InfluxDB IOx Tech Talks: Catalogs - Turning a Set of Parquet Files into a Data Set](https://www.youtube.com/watch?v=Zaei3l3qk0c)
