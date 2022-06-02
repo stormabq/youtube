@@ -5,6 +5,8 @@
 
 [Data Science with Rust - Arrow, DataFusion, and Ballista by Andy Grove](https://www.youtube.com/watch?v=UnCaJFa13oo)
 
+### Parquet
+
 [The columnar roadmap: Apache Parquet and Apache Arrow](https://www.youtube.com/watch?v=dPb2ZXnt2_U)
 
 [parquet files](https://www.youtube.com/results?search_query=parquet+files+tutorial)
