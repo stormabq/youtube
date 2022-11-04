@@ -5,4 +5,5 @@
 
 ### Politics
 
-[The Shah of Iran 1976](https://www.youtube.com/watch?v=9RH2wXQtFdo)
+* [The Shah of Iran 1976](https://www.youtube.com/watch?v=9RH2wXQtFdo)
+* [The Shah of Iran 1974](https://www.youtube.com/watch?v=EI5joeY2l-U)
